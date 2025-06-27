@@ -4,6 +4,5 @@ hi welc 2 my git
 </br> 14 and taken w2i pref but idrc tbh
 </br> ifb all ponytowners ! bmf lelelele
 </br> i hate you if you whitewash frisk
-</br> charisk truther dont be mean 2 me
-</br> look at [this](https://rochas313.atabook.org) and [this](https://open.spotify.com/track/6MX8v7cRooNQb5fW5Uo6Sm?si=ddafbb19ead3483c) and [this](https://rentry.co/dreamily)
+</br> [sign pls](https://rochas313.atabook.org) and [listen now](https://open.spotify.com/track/6MX8v7cRooNQb5fW5Uo6Sm?si=ddafbb19ead3483c) and [read more](https://rentry.co/dreamily)
 </br> ![](https://files.catbox.moe/lhvlyu.gif)
