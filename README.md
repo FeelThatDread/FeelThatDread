@@ -2,7 +2,7 @@
   
   ![](https://files.catbox.moe/lhvlyu.gif)
 </br> cocoapowder dni sorray
-</br> that one oomf who lowkey ia on pt now
+</br> that one oomf who loves charisk
 </br> ![](https://komarev.com/ghpvc/?username=DETERMlNATION&color=7a7a7a&style=flat-square&label=❤️)
 </br> YOU NEVER GAVE UP DEVOTION, WAITING FOR
 </br> ME . . . YOU'LL ALWAYS BE MY GIRLFRIEND ! !
