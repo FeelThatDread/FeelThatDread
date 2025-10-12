@@ -1,8 +1,8 @@
 <div align="center">
   
   ![](https://files.catbox.moe/lhvlyu.gif)
-</br> cocoapowder dni sorray
-</br> that one oomf who loves charisk
+</br> cocoapowder dni
+</br> active pace oomf
 </br> ![](https://komarev.com/ghpvc/?username=DETERMlNATION&color=7a7a7a&style=flat-square&label=❤️)
 </br> MY BABY, HERE ON EARTH, SHOWED
 </br> ME WHAT MY HEART WAS WORTH.
