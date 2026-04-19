@@ -1,6 +1,6 @@
 <div align="center">
 
-  [main](https://rentry.co/charisk)　[ata](https://rochas313.atabook.org)　[gunslol](https://guns.lol/go2heaven)　[straw](https://imm6rtals.straw.page/)　[notes](https://rentry.co/kugisakinobara)
+  [main](https://rentry.co/charisk)　[ata](https://rochas313.atabook.org)　[alterspring](https://alterspring.org/@frisk)
 </br>
 </br> ![](https://komarev.com/ghpvc/?username=FeelThatDread&color=455b56&style=flat-square&label=Like+a+prayer,+void+of+hope.)
 </br>
