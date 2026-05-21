@@ -1,6 +1,7 @@
 <div align="center">
 
   [main](https://rentry.co/charisk)　[ata](https://rochas313.atabook.org)　[alterspring](https://alterspring.org/@frisk)
+</br> i will trade literally everything i have on rentry for /pizzapunch AND /frisk AND /chara
 </br>
 </br> ![](https://komarev.com/ghpvc/?username=FeelThatDread&color=455b56&style=flat-square&label=Like+a+prayer,+void+of+hope.)
 </br>
