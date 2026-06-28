@@ -1,6 +1,6 @@
 <div align="center">
 
-  [main](https://fluffle.cc/spuriken)　[ata](https://rochas313.atabook.org)　[alterspring](https://alterspring.org/@frisk)
+  [main](https://sinisterminds.carrd.co)　[ata](https://rochas313.atabook.org)　[alterspring](https://alterspring.org/@frisk)
 </br> i am 16
 </br> matt rentry is a zionist
 </br>
