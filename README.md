@@ -3,7 +3,8 @@
   [main](https://fluffle.cc/jackrose)　[ata](https://rochas313.atabook.org)　[alterspring](https://alterspring.org/@frisk)
 </br> i am 16
 </br> matt rentry is a zionist
-</br> thank you ♡ [@pt-players](https://github.com/pt-players)
+</br> ponytown's lord x ♡ 
+</br> [@pt-players](https://github.com/pt-players) [@ponytown-nominations](https://github.com/ponytown-nominations) [@pt-of-awesomeness](https://github.com/pt-of-awesomeness)
 </br>
 </br> ![](https://komarev.com/ghpvc/?username=FeelThatDread&color=455b56&style=flat-square&label=Like+a+prayer,+void+of+hope.)
 </br>
