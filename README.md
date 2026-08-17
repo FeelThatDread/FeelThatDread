@@ -1,8 +1,8 @@
 <div align="center">
 
-  [main](https://fluffle.cc/jackrose)　[ata](https://rochas313.atabook.org)　[alterspring](https://alterspring.org/@frisk)
+  [main](https://rentry.co/LORDX)　[ata](https://rochas313.atabook.org)
 </br> i am 16
-</br> matt rentry is a zionist
+</br> matt rentry is a zionist, use an adblocker
 </br> exe ponies are always welcome to sit with me
 </br> sometimes i'm ponytown's lord x ♡ 
 </br>
