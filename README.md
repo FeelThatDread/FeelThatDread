@@ -1,6 +1,6 @@
 <div align="center">
 
-  [main](https://rentry.co/LORDX)　[ata](https://rochas313.atabook.org)
+  [straw](https://terriblefates.straw.page)
 </br> i am 16
 </br> matt rentry is a zionist, use an adblocker
 </br> exe ponies are always welcome to sit with me
