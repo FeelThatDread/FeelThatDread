@@ -1,6 +1,6 @@
 <div align="center">
 
-  [straw](https://terriblefates.straw.page)
+  [cc](https://pronouns.cc/@toughcrust)
 </br> i am 16
 </br> matt rentry is a zionist, use an adblocker
 </br> exe ponies are always welcome to sit with me
