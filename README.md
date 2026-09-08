@@ -1,6 +1,6 @@
 <div align="center">
 
-  [cc](https://pronouns.cc/@toughcrust)
+  [cc](https://pronouns.cc/@toughcrust) - [wall](https://walloftext.co/lordx) - [atabook](https://zahhak.atabook.org)
 </br> i am 16
 </br> matt rentry is a zionist, use an adblocker
 </br> exe ponies are always welcome to sit with me
