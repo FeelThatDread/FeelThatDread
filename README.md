@@ -1,6 +1,6 @@
 <div align="center">
 
-  [cc](https://pronouns.cc/@toughcrust) - [wall](https://walloftext.co/lordx) - [atabook](https://parappa.atabook.org)
+  [cc](https://pronouns.cc/@STRlDER) - [wall](https://walloftext.co/lordx) - [atabook](https://zahhak.atabook.org)
 </br> i am 16
 </br> exe ponies are always welcome to sit with me
 </br> sometimes i'm ponytown's lord x
