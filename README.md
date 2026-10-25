@@ -1,6 +1,6 @@
 <div align="center">
 
-  [cc](https://pronouns.cc/@STRlDER) - [wall](https://walloftext.co/lordx) - [atabook](https://zahhak.atabook.org)
+  [cc](https://pronouns.cc/@STRlDER) - [sinister minds tier list](https://i.postimg.cc/HnN01TwM/image-2026-10-25-111906396.png) - [atabook](https://zahhak.atabook.org)
 </br> i am 16
 </br> exe ponies are always welcome to sit with me
 </br> sometimes i'm ponytown's lord x
