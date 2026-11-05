@@ -2,7 +2,7 @@
 
   [cc](https://pronouns.cc/@Broflovski) - [sinister minds tier list](https://i.postimg.cc/HnN01TwM/image-2026-10-25-111906396.png) - [atabook](https://zahhak.atabook.org)
 </br> i am 16
-</br> anybody is welcome to sit with me
+</br> anybody is welcome to sit with me (ifb if you do)
 </br> sometimes i'm ponytown's lord x
 </br>
 <sub> <a href="https://github.com/pt-players">@pt-players</a> <a href="https://github.com/ponytown-nominations">@ponytown-nominations</a> <a href="https://github.com/pt-of-awesomeness">@pt-of-awesomeness</a> <a href="https://github.com/pt-fashion">@pt-fashion</a> <a href="https://github.com/kaotown">@kaotown</a> 
